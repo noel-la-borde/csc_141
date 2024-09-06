@@ -1,1 +1,1 @@
-These are the week 1 assignments. 
+These are the week 2 assignments. 
