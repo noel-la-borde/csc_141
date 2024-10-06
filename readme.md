@@ -1,1 +1,1 @@
-These are the week 4 assignments. 
+Week 5 assignments are available for grading. 
