@@ -1,1 +1,1 @@
-Week 7 assignments are available for grading.  
+Week 8 assignments are available for grading.  
